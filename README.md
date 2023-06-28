@@ -1,1 +1,1 @@
-# .github
+Coming soon: https://humblebrag.ai
